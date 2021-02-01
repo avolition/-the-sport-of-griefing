@@ -1,2 +1,2 @@
-# -the-sport-of-griefing
+# The Sport of Griefing
 The history of the sport known as "griefing"...
